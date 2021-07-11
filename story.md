@@ -1,0 +1,1 @@
+The characters in this story is a lio, who is very weak from not being able to hunt for food, a fly, who will help that lion become strong again, and a goat that will be introduced later on who will help the other two characters.
